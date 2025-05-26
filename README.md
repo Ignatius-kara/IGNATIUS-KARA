@@ -5,4 +5,4 @@
 🎗️ PRODUCT MANAGER 🚀</br>
 🎗️ FOOD CRITIC 🍛</br>
 🎗️ BRAND AMB🎖️</br>
-FOLLOW ME ON INSTAGRAM![Instagram](https://www.instagram.com/pst_ignatius/)
+FOLLOW ME ON [Instagram](https://www.instagram.com/pst_ignatius/)
