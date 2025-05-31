@@ -1,13 +1,5 @@
-## Hi , I am Ignatius Emmanuel 
-
-🍁I am the righteousness of God in Christ Jesus<br/>
-🌐PRESIDENT OF GROUP [Instagram](https://www.instagram.com/shopwithkaratech/)🎖️</br>
-🎗️ PRODUCT MANAGER 🚀</br>
-🎗️ FOOD CRITIC 🍛</br>
-🎗️ BRAND AMB🎖️</br>
-FOLLOW ME ON [Instagram](https://www.instagram.com/pst_ignatius/)
 # 💫 About Me:
-## Hi , I am Ignatius Emmanuel <br><br>🍁I am the righteousness of God in Christ Jesus<br/><br>🌐PRESIDENT OF GROUP [Instagram](https://www.instagram.com/shopwithkaratech/)🎖️</br><br>🎗️ PRODUCT MANAGER 🚀</br><br>🎗️ FOOD CRITIC 🍛</br><br>🎗️ BRAND AMB🎖️</br><br>FOLLOW ME ON [Instagram](https://www.instagram.com/pst_ignatius/)
+## Hi , I am Ignatius Emmanuel <br><br>🍁I am the righteousness of God in Christ Jesus<br/><br>🌐PRESIDENT OF GROUP [Instagram](https://www.instagram.com/shopwithkaratech/)🎖️</br><br>🎗️ PRODUCT MANAGER 🚀</br><br>🎗️ FOOD CRITIC 🍛</br><br>🎗️ BRAND AMB🎖️</br><br>FOLLOW ME ON [Instagram] (https://www.instagram.com/pst_ignatius/)
 
 
 ## 🌐 Socials:
